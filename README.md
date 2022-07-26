@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @benjaminhawn!
-- 🧠 I’m interested in Machine Learning techniques and math visualizations.
+- 🧠 I'm into blue jeans and swedish automobiles.
 - 🐦 How to reach me: twitter.com/benjaminhawn
 
 <!---
