@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @benjaminhawn!
-- 🧠 I'm into cassette taoes and swedish automobiles.
+- 🧠 I'm into cassette tapes and swedish automobiles.
 - 🐦 How to reach me: ben@benjaminhawn.com
 
 <!---
